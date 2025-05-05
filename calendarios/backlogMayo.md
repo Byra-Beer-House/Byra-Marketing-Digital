@@ -3,8 +3,15 @@ Editorial Mayo
 PROMOS COMBINABLES DEL DIA STORYS SON TODOS LOS DIAS
 
 Promos Cumpleaños - Miercoles - 07/05 (Kaluan) (feed * Fixa)
+
+
+
 Promo Cumpleaños - Jueves - 08/05 (Ingird) (storys)
+
+
 Promo Combinables del dia - Viernes - 09/05 (Kaluan) (storys)
+
+
 Promo Combinable del dia - Sabado - 10/05 (Kaluan) (storys)
 Promo Fixas Carrousel - Martes - 13/05 (Kaluan) (feed * Fixa)
 Promo Combinable del dia - Martes - 13/05 (Ingrid) (storys)
