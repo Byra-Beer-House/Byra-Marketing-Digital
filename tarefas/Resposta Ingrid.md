@@ -12,6 +12,9 @@ https://www.instagram.com/reel/DEx1ueVRNOo/?igsh=MXV4MnJ4ZWN2dDQ4Yg==
 https://www.instagram.com/reel/DEkw9vkRpuY/?igsh=ZW5tMXF5dTVsY2Fw
 https://www.instagram.com/p/DEdcTB3Rwb-/?igsh=MWVtaXRpM3poN29pdQ==
 
+(PORQUE O VIDEO É BOM? OQUE FAZ ELE SER BOM?)
+
+
 Venicce Beach
 Localização: Orla, Brasília, Brasil
 Instagram: @veniccebeach
@@ -38,8 +41,8 @@ Teseo Bar
 Localização: Palermo Soho, Buenos Aires, Argentina
 Instagram: @teseobar
 Conteúdo: stories, fotos (comidas e drinks), reels, somente 1 carrossel, destaques (menú, reservas, localização), descrição (horários e dias de funcionamento, link de informações, endereço). 
-Estilo visual: cores bronze e preto; frequência de postagem: de 2 até 3 postagens por mês; edição: utilizam fundos escuros e embaçados para realçar os drinks e comidas oferecidas; as imagens possuem tons vibrantes, porém um pouco suavizados.
-Audiovisual: boa qualidade dos vídeos, mantém um padrão focado nos drinks e comidas, algumas imagens do ambiente, a música  é padronizada no estilo eletrônico. 
+Estilo visual: cores bronze e preto; frequência de postagem: de 2 até 3 postagens por mês; edição: utilizam fundos escuros e embaçados para realçar os drinks e comidas oferecidas (ISSO NAO É EDICAO, É MONTAGEM); as imagens possuem tons vibrantes, porém um pouco suavizados.
+Audiovisual: boa qualidade dos vídeos (OQUE É DE BOA QUALIDADE? AS IMAGENS? O ROTEIRO? A MOVIMENTACAO DA CAMERA?), mantém um padrão focado nos drinks e comidas, algumas imagens do ambiente, a música  é padronizada no estilo eletrônico. 
 Post Favorito:  a imagem é simples, com fundo escuro destacando a beleza do drink oferecido. Acho que a ideia gera vontade e curiosidade no público para conhecerem e provar os drinks e comidas. Post favorito/inspiração
 Ideias de inspiração - Byra Beer House:
 https://www.instagram.com/p/C_ietFAxtVj/?igsh=OTJtdzJwZWczeWw3
